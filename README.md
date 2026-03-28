@@ -1,2 +1,2 @@
 # rocksRsnow2.com
-Hey, rocks are snow too
+Hey, rocks are snow too!
